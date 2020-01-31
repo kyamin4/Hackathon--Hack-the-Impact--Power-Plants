@@ -1,1 +1,0 @@
-# Hackathon--Hack-the-Impact--Power-Plants
